@@ -5,3 +5,4 @@ I like to draw, so if you want to see my art follow me on Tumblr! if you want of
 my pronouns are he/she 👍
 I'm clearly going to enjoy talking to you! I hope you like me :)
 that's it! 👍
+😄
